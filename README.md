@@ -1,2 +1,0 @@
-# dddang
-chaihu
